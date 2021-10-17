@@ -6,4 +6,4 @@
 
 Code should be fun as well as efficient. As Einstein would say, "If you can't explain it simply, you don't understand it well enough." Or so has been quoted.. Well, in my own philosophy, I've come to something of a motto but certainly no fact: If it's not fun, then you don't know it well enough to make it so.
 
-p.s. Feel free to immortalize me in quotes as well
+p.s. Feel free to immortalize me in throw me in quotes too
