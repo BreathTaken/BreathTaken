@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BreathTaken
-- 👀 I’m interested in ... code efficiency, QoL improvements, secure design, CPL0, and genreally anything which involves a keyboard and mouse
+- 👀 I’m interested in ... code efficiency, QoL improvements, secure design, CPL0, bug fixes- they call out to me like a sixth sense I'm tellin' ya.. and genreally anything which involves a keyboard and mouse 🤓
 - 🌱 I’m currently learning ... life, it's a journey
 - 💞️ I’m looking to collaborate on ... Im more a soloist but not explicitly. Reach out, always open to opportunity and I'm a great team player who always manages to add value
 - 📫 How to reach me ... scott@helloscottgoldstein.com is the best route however dependant on my current projects/circumstance I may not reply immediately. Please be patient and understanding. Thank you
